@@ -4,7 +4,7 @@ In diesem Artikel möchte ich **DelarixTrader** vorstellen, ein Handelsplattform
 
 Ich persönlich habe viele Aspekte des Tradings erlebt und finde, dass **DelarixTrader** ein verlockendes Angebot für neue Trader darstellt. In diesem Artikel gehe ich auf die Vor- und Nachteile ein und beleuchte, warum DelarixTrader für viele eine attraktive Option ist.
 
-### ➡️ [Zur offiziellen Webseite](./l/de.html)
+### ➡️ [Zur offiziellen Webseite](https://milton57kennedy.github.io/special/l/de.html)
 
 ## Zusammenfassung  
 In dieser Zusammenfassung erhalten Sie einen kompakten Überblick über **DelarixTrader** und die wichtigsten Punkte, die im Artikel behandelt werden. Die folgenden Fakten fassen die wesentlichen Informationen zusammen und helfen Ihnen, einen schnellen Eindruck zu gewinnen.  
